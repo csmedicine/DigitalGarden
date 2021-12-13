@@ -1,0 +1,5 @@
+#Business #Policy
+
+In order to deal with the changes which AI will bring to the world, we need to make sure that we are distributing the wealth that it will create properly. Labor prices will drop because AI will increase the amount that it can do every day. Second, because of this increase of capital, we will have growth in GDP (~50% will happen in about 7 years compared to 13 from 2000-2019). This growth will have to make us rethink our taxation system since more people will be without new jobs and the wealth that it is creating can exacerbate inequality. In order to do this, you can start an American Equity Fund which takes 2.5% of market capitalization of companies and 2.5% of total value of land and distributes it to all Americans (a $13,500 value as of today, but is poised to increase because of AI). After this, people would have more freedom to see other things and create social good having liberation with their own money and being able to vote with their dollar rather than people choosing policies to line their own pocket. 
+
+Source: [Moore's Law for Everything](https://moores.samaltman.com/)

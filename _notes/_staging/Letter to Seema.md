@@ -1,0 +1,22 @@
+#Writing #Life #Relationship #Letters
+
+Hi Seema, 
+
+Memories are so hard to write into words. We try and take pictures, but they don't do it justice. It's hard. Sometimes we just try and enjoy the moment. Other times we try and take videos. At all times, however, we work ceaselessly to hold on to those moments which allow us to cherish when we are together, to keep us from drifting apart when we are no longer so. 
+
+I know a lot of words. I know that because you keep reminding me to explain them, so that you can learn them too. I think that's why I started talking to you more. To be honest it seemed foreign to me, saying all those words. It's like I had them in my head all these years and when I started saying them, they were flowing like a tap that hadn't been open in years. It's weird. I was able to pare down my impossible study plans and actually accomplish more than I could without someone. I've never really felt that towards someone else, outside of my family, and I was curious to learn more and grow with you. I want you to teach me about your interests and what you read about; I want to teach you what I know. I want to grow with you, and I want to learn all of the words which can describe our memories together. 
+
+And yet, I feel like these words will fall short. How do you encompass all of the experiences of a year into words? Do you start with the wheezing laughter we collapsed into after a day of wholesome fun, picking the biggest apples (including our *Golden Delicious*) in Delaware? Or do you start with the golden-pink sunsets of July which turned into the short, brilliant sunsets of November, which you had insisted on photographing even though we've seen them a million times? I don't know. All I do know is that in a year which was marred with aggressive loneliness, I was comforted with your merry and lively company.  
+
+Twenty three. What a lovely number. There are twenty three years in which you have impacted many people's lives. I didn't know you before twenty two. Imagine how much catching up I have to do to understand what's going on inside your head. You assure me that there's "no thoughts" inside there; I counter that they're just hidden. Maybe they're for us to find together, working to become more than the sum of our parts. I think that there is a poetic quality to twenty three, a number which reminds us that we're old enough to own cars, buy a house, and do all of the adult things that seemed "foreign" to us in college and yet we can still claim that we're "young." You disagree. *It's only two years until we're **old**, you say*. Is that really so bad? Growing old with each other, learning from our friends and family, and watching the cycle of life repeat itself? 
+
+This is more than a birthday card, which is often completed with a pithy quote or a forgettable gag. It's a token of gratitude. It's rare to find something that lasts in this world. Our relationship will evolve as we grow; I don't know how it will look like in five years. All I do know is that I will cherish these memories that we have made together when the world insists on us being six feet apart. It's also a token of pride that you have chosen me, and that we have the mutual respect to figure out things when times get tough. 
+
+My emotions aren't always *right*. I get caught up in grandiosity, and idealism. I forget I haven't done the work, and I know that I am annoying to deal with. I'm putting unachieveable high standards on myself to succeed all the time, and inevitably melancholy sets in as I don't get there. But you're able to deal with my absentmindedness with such aplomb.  You keep me grounded, sane. Some would say rooted in reality. Others would say rooted in **sanity**. Even though I would tell those certain others to "mind their business," what I love about you is that you're tolerant of intellectual differences, emotional when I am resolute, and able to be a strong and independent thinker when the time calls for it. 
+
+So we have made it to the end of this letter. The sun shines yet again, or maybe not. I don't know the weather in April. But I do know that you have made another trip around the sun. The world isn't the same now. One year is a substantial amount of time-I wouldn't imagine that I would be writing to that quiet girl in TBL who I barely knew. Life works in weird ways but I'm glad I am spending it with you. 
+
+Love, 
+
+Shree 
+

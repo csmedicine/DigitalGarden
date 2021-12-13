@@ -1,0 +1,5 @@
+#Business #Philosophy 
+
+Even though I preach about living public life as I live it in private [[Defining Integrity]], the idea of Clearview AI (which is a facial recognition company) selling their services to law enforcement is troubling. They are using faces online to train their algorithm, and police departments are using it in their searches (even though they are not accurate). This to me seems like a invasion of privacy, especially because this algorithm is shown to be not as accurate as it is advertised and police officers are using it without their superiors knowing. This is why we need to regulate these companies [[We Should Treat Social Media Like Government]], and make sure that we have a way of understanding how facial recognition can harm our personal liberties. 
+
+Source: [Facial Recognition Tool can Harm Us](https://www.buzzfeednews.com/article/ryanmac/clearview-ai-local-police-facial-recognition)
