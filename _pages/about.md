@@ -6,4 +6,4 @@ permalink: /about
 
 *This is an about page.*
 
-Feel free to tell the world about what you love! 😍
+Check out the page <a href="shreenadkarni.com">here</a> for more about me. 😍
