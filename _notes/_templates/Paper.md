@@ -1,6 +1,4 @@
+
 ---
-title: Template Paper
+@{{citekey}}
 ---
-
-
-

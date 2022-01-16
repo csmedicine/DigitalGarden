@@ -43,12 +43,15 @@
 	1.  29. and 30. are from [[Jerry Seinfeld on Routines]]
 31.  [Black Box Thinking](https://www.amazon.com/Black-Box-Thinking-People-Mistakes-But/dp/1591848229)
 32.  [Capital in the 21st century](https://en.wikipedia.org/wiki/Capital_in_the_Twenty-First_Century) - Jabez recommended this
+33. How to talk to anyone
 
 ## Books I'm Reading 
 1. [[How to Change Your Mind - Michael Pollan]]
 
 ## Books I've Read
 1. [[How to Take Smart Notes - Sonke Ahrens]]
+2. [[../_sources/Books/The Westing Game]]
+3. 
 
 # Movies 
 ## Movies I want to watch

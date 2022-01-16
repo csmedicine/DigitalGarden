@@ -5,6 +5,7 @@ w/ Abdullah and Revanth
 
 [[Tech and Medicine Don't Work Synergistically]]
 
+[[../_sources/Books/Casino Healthcare]]
 
 - Revanth - one thing that I am working on at Amazon is how to translate the unstructured data from the doctor notes to store them in the cloud using the FHIR framework (it is a schema in which people store data like JSON)
 - The problem is that not many people are using that framework so it becomes hard to put it on the cloud. One of the problems with data in healthcare, that I added, was that you need to partner with an organization in order to make sure that you have enough data and proof-of-concept to make a company (based on your value proposition).
